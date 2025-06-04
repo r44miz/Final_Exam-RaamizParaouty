@@ -1,0 +1,1 @@
+All the Explanating From Section 1-4 is in the conversation log file with the Ai Conversations
